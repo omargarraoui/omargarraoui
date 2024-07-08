@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @omargarraoui
+- 📫 Reach me at ogarraoui@icloud.com
