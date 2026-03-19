@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @omargarraoui
-- 📫 Reach me at omar@og-rr.org
+- 📫 Reach me at omar@omargarraoui.com
